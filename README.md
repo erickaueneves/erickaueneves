@@ -12,5 +12,5 @@ erickauesilvaneves@gmail.com
 
 @ericlnx
 
-![](https://media.tenor.com/pXMP0JuosKAAAAAi/cool-beans.gif](https://tenor.com/pt-BR/view/cool-beans-gif-20369657)
+![](https://media.tenor.com/pXMP0JuosKAAAAAi/cool-beans.gif)
 
