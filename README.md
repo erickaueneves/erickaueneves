@@ -10,7 +10,7 @@ Meu nome é Éric Kauê
 ## Entre em contato comigo 📫
 erickauesilvaneves@gmail.com
 
-[@ericlnx] (https://www.instagram.com/ericlnx?igsh=anluZjg5cGQ5cDQ2)
+[@ericlnx](https://www.instagram.com/ericlnx?igsh=anluZjg5cGQ5cDQ2)
 
 ![](https://media.tenor.com/pXMP0JuosKAAAAAi/cool-beans.gif)
 
