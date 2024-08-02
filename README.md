@@ -6,3 +6,9 @@ Meu nome é Éric Kauê
 - Tenho 16 anos;
 - Sou brasileiro;
 - Estou começando na linguagem JavaScript
+
+## Entre em contato comigo 📫
+erickauesilvaneves@gmail.com
+
+@ericlnx
+
